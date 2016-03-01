@@ -1,9 +1,5 @@
 Hist3907 is a class unlike any other really in the history department. Not only does it take place fully online but it encourages students to communicate and share their ideas and experiences with the course through its online community. Though this takes out a physical interactive relationship between students and their professor in a classroom it really only switches it to an online setting. If anything, it allows for more communication because it is essentially a large chat that can be accessed anytime or anywhere as opposed to during a certain time frame during the week. This is also what makes it one of the most difficult classes that I've taken. Students are not only taught content to learn but how to learn and this is drilled into them time and time again. I know that I expect to learn at certain times in a certain setting and this constant interactivness has been difficult for me to grasp. It is these sorts of hurddles that I hope to overcome through this course. I want to learn how to learn in different ways and think outside the box that constrains education. I hope to move more into the technological age where academics overlap with it and I hope to learn how to use the tools available to me wisely. I'm not inept when it comes to technology but it has not always been a huge interest of mine. This is why I want to learn it because it's easy to learn about something you enjoy, it's a challenge to learn about something you're not familiar with and therefore more rewarding.
 
-[!] (15370301782_7e296d0ddc_q.2.jpg)
-
-[!](15370301782_7e296d0ddc_q.jpg) 
-
 This website I used prior and it was useful to see what words were used most in a piece when put into it as well as get an idea of an argument in the piece put in.
 
 <http://www.wordle.net/create>
